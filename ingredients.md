@@ -1,0 +1,5 @@
+oil
+
+salt 
+
+turmeric
